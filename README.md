@@ -3,7 +3,7 @@ Merhabalar Bugün sizlere bottom navbar
 
 ----------Youtube Videosu----------
 
-
+https://youtu.be/G8SrJ9tdrqg
 
 ----------Projeden Görüntüler----------
 
